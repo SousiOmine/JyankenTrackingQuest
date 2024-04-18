@@ -1,1 +1,1 @@
-https://github.com/SousiOmine/JyankenTrackingQuest
+https://qiita.com/SousiOmine/items/4d07c1bea48fa9b63a93
